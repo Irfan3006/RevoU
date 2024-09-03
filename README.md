@@ -1,3 +1,3 @@
 # BELAJAR BERSAMA REVOU
 
-tess
+Setiap bertemu dengan orang baru, saya selalu mengosongkan gelas saya terlebih dahulu.
