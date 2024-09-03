@@ -1,3 +1,3 @@
 # BELAJAR BERSAMA REVOU
 
-Setiap bertemu dengan orang baru, saya selalu mengosongkan gelas saya terlebih dahulu.
+Setiap bertemu dengan sesuatu hal baru, saya selalu mengosongkan gelas saya terlebih dahulu.
